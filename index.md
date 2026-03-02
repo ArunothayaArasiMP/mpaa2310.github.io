@@ -5,7 +5,7 @@ title: Home
 
 # M.P. ARUNOTHAYA ARASI
 
-**B.B.A. LL.B (Hons.) | Legal Researcher | AI & Law Enthusiast**
+B.B.A. LL.B (Hons.) | Legal Researcher | AI & Law Enthusiast
 
 mpaa2310@gmail.com  
 +91 6379296289  
